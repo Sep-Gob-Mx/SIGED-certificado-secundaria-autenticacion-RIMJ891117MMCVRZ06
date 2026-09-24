@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RIMJ891117MMCVRZ06
+RIMJ891117MMCVRZ06
